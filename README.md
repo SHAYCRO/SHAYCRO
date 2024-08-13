@@ -12,4 +12,4 @@ andre.almeida12@escola.pr.gov.br
 
 (42) 991413750
 
-![pai tá chave](https://media.tenor.com/VhFmRTHDglQAAAAM/messi-ronaldo.gif)
+![](https://media.tenor.com/VhFmRTHDglQAAAAM/messi-ronaldo.gif)
